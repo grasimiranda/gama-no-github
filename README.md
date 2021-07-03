@@ -1,0 +1,1 @@
+sobre este curso este achando bem complicado, porém enriquecedor
